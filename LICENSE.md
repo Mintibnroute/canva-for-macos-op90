@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Canva for macOS panel with Canva for macOS ultimate Panel: plugin support & layer styles. Featuring plugin support and layer styles, it's the best choice for
 
 
 
